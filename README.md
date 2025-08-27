@@ -9,3 +9,5 @@
 ## Eg valgte IM i hovedsak på grunn av at eg liker og lage film
 
 ## Eg håper å læra litt av alt har ikkje nåke spesifikt enda.
+
+## https://www.gjennestadvgs.no
